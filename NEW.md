@@ -1,1 +1,0 @@
-ETO moi noviy fail
